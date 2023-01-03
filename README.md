@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @surgiie
+- 👀 I’m interested in anime & code.
+- 🌱 I’m ~~currently~~ always learning.
+- 💞️ I’m looking to collaborate on anything magical.
+- 📫 How to reach me - [@surgiie](https://twitter.com/surgiiie)
